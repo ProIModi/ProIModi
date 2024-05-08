@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ProIModi
+- 👀 I’m interested in ...GitHub
+- 🌱 I’m currently learning ...Git
+- 💞️ I’m looking to collaborate on ... students 
+- 📫 How to reach me ...call 9662484464
+- 😄 Pronouns: ...Modi Sir
+- ⚡ Fun fact: ...i4u
