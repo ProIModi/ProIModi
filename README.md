@@ -1,5 +1,5 @@
 - first video at SyD
- 👋 Hi, I’m @ProIModi
+- 👋 Hi, I’m @ProIModi
 - 👀 I’m interested in ...GitHub
 - 🌱 I’m currently learning ...Git
 - 💞️ I’m looking to collaborate on ... students 
